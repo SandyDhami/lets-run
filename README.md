@@ -1,2 +1,2 @@
 # lets-run
-just begining
+just learn anjoy and grow.
